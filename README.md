@@ -1,1 +1,0 @@
-# mynavathig.github.io
